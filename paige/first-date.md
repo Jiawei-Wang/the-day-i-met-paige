@@ -1,1 +1,11 @@
-I will update :)
+In a burst of confidence, I downloaded Hinge on a sunday, ready to dip my toes back into dating after a year of solidifying myself and figuring out what I wanted and needed in a partner. Jiawei was one of the first people I connected and entered into conversation with. I apprecited the confidence to message first, and from his pictures and bio answers, I could tell he had drive and warmth in him.
+
+From the get-go conversation was easy, it felt like talking to someone I had known for ever. What really striked me the most, was his ability to switch between being funny, to being serious with insightful and direct comments. It kept things light and helped me not overthink - I always knew where I stood, right from the start. And it was genuine humor, not the forced kind, of taking relationship talk lightly, or as a joke. The forwardness to ask on the first day of talking, to meet if I was available, was extremely surprising - but in a good way. I appreciated the directness, and felt that it was a way of saying "I truly want to get to know you more".
+
+I was busy, but we settled on a date for 2 days later. What really striked me, was that in the talks for both date possiblities, he thought about my safety and comfortness with meeting, in regards to timing and location,  which is doubly more than I did. I appreciated the thoughtfulness in our continued conversations of saving full topics till the date. All in all, Jiawei was turning out to be someone of really great character, so my anticipation was heightening. This led to wayy too much time being spent on figuring out what to wear, but it was worth it ^-^ 
+
+
+Day of, I was very neverous, but excited all day with butterflies - partly bc the last time I had been on a first date was 11+ years ago and partly because I was just looking forward to meeting Jiawei so much in person. I got even more excited when he offered to meet earlier if I could swing it, so we could spend more time together ❤️  I waited until it was my last coworker and I, and swung around to ask him if he could hold the fort while I left early because I ~*had a date*~ and he laughed and told me yes and to go. I literally skipped a bit when going to my car.
+
+Todo: the date
+tbc :)
