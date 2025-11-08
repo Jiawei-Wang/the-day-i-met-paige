@@ -1,4 +1,6 @@
-I matched with Paige on a Sunday, I didn't realize she just created her dating profile and got back to dating after a break. Her profile didn't stand out as unique or quirkly, but it was sincere and geuine. I really liked her smile and of course I used the classic asking about the dog technique to get her attention and we matched.
+I matched with Paige on a Sunday, I didn't realize she just created her dating profile and got back to dating after a break. Her profile didn't stand out as unique or quirkly, but it was sincere and geuine. I really liked her smile and of course ~~I used the classic asking about the dog technique to get her attention and we matched.~~ I lied lol, I used the worst starting line any human could possibly think of
+
+![](../the-start-of-it-all.jpeg)
 
 We had our first date two days later on a Tuesday evening. We instantly clicked and chatted for four hours. She even looked better in person, I think it was about her personality that I could only sense in person, or maybe the smile on her face.
 
