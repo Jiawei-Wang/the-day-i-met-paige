@@ -20,3 +20,5 @@ I wish I could properly explain how easy conversation is with you, so that other
 
 Todo: more of the date
 tbc :)
+
+J: til Paige has extremely good memory haha. Every single detail about what she sees, how she feels, and I can't wait to see how she wants us to become. 💕
