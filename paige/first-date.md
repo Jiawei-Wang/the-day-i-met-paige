@@ -7,5 +7,16 @@ I was busy, but we settled on a date for 2 days later. What really striked me, w
 
 Day of, I was very neverous, but excited all day with butterflies - partly bc the last time I had been on a first date was 11+ years ago and partly because I was just looking forward to meeting Jiawei so much in person. I got even more excited when he offered to meet earlier if I could swing it, so we could spend more time together ❤️  I waited until it was my last coworker and I, and swung around to ask him if he could hold the fort while I left early because I ~*had a date*~ and he laughed and told me yes and to go. I literally skipped a bit when going to my car.
 
-Todo: the date
+I ended up walking out of work too early, and didnt want to get there ahead of time, so I just sat in my car and messaged my 2 best friends about it, to ease the jitters. Hayden made sure she knew the timing and location, as the one always with my safety mind, and Bailey psyched me up, to try and assuage some of my nerves.
+
+I had lost my earphones that day, and accidentally left the dongle that would connect my phone to the car, in the office. So when I began driving, I switched to playing the CD I already had in, which was my Qveen Herby one. The track that started up happened to be the middle interlude, which is a guided meditation, and was actually the most perfect thing that could of happened - it helped calm my nerves. 
+
+Upon arriving, I decided to wait outside and observe the exotic pet shop nearby. I didn't want to be in my phone, and I didn't want to be standing, constantly eying every car that came in. Did you know that this shop has embalmed snakes in giant jars? One of the enclosures had a drawing beside it, a kid must have liked the animal and drawn it. There were restaurant soup containers full of spiders and scorpions directly in the windows in front of me, and while they were extremely creepy, it helped me to focus on something. When Jiawei arrived, he looked even more handsome in person, and I pointed out the spider that was labeled "SUS male" to try and break some of the initial awkwardness that comes from first meetings. I think it worked :)
+
+We walked over to the tea house and ordered food and tea. I tried to just go for plain tea,but it turns out what I ordered was everything and the kitchen sink in one cup haha. The fried tofu I got was actually one of the best tofus I've ever had. When I offered Jiaewei to try a piece and he instantly said yes, my heart melted a little bit, because one of my love languages is sharing food with others. If I try something and its good, I want others that I care about to experience the goodness too. So the fact that off-rip he said yes and tried it, was a big check. 
+
+I wish I could properly explain how easy conversation is with you, so that others get it, but it doesn't really matter because you get it. We bounced between topics and discussing experiences, and even though we've been through different paths, we understood each other's. 
+
+
+Todo: more of the date
 tbc :)
