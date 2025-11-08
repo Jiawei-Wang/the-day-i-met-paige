@@ -17,8 +17,18 @@ We walked over to the tea house and ordered food and tea. I tried to just go for
 
 I wish I could properly explain how easy conversation is with you, so that others get it, but it doesn't really matter because you get it. We bounced between topics and discussing experiences, and even though we've been through different paths, we understood each other's. 
 
+I loved his ability to maintain eye contact with me while speaking. I had a hard time doing it growing up, and would have to force myself. Now it's what I prefer (eyes are windows to the soul and all that jazz), and it made our conversation feel more connected and genuine. It helps that Jiawei has kind eyes and a nice smile, so it was hard for me to stop looking at him anyways :)
 
-Todo: more of the date
-tbc :)
+A few times in the conversation, he'd stop our dialouge and either state an observation that he's made about me, or would re-route the convo to something else. And the ability to pause and go against the flow of conversation, made me smile each time - and I just thought "man, this is someone who knows himself and is confident, that doesnt overthink, just does" He was already taking action in the conversation, which is a mirror to how he takes action in his life. 
 
-J: til Paige has extremely good memory haha. Every single detail about what she sees, how she feels, and I can't wait to see ~~how~~ what she wants us to become. 💕
+All of this together made me feel completely relaxed and at ease, and that I could talk about anything. So I did :) I like how animated Jiawei gets when he's excited about a subject, or is talking about a topic he knows alot of. He is very well grounded and down to earth. I can tell that even though he is a realist, he is an optimist at heart, and I'm the same way. 
+
+I was excited when he wanted to continue the date and find a new location. The ice cream spot was perfect, though the method of  getting to it was a bit iffy. It was a great coincidence that we ended up parking in the same spot nearby - it made walking to find it a bit less daunting,especially when it was so hidden. We picked the same toppings - Jiawei said he chose it because he always liked to try new things - and I'm the same way. Again, I just kept being surprised at how much synergy our ways of thinking had. He tried my food again :)
+
+At this point, I felt so comfortable talking to Jiawei, that I was almost physically being drawn to him. Which is why every once in awhile, I would tap his hand or finger to make a point in our conversation. Because I physically could not resist. Even when leaving, I couldn't help but be drawn closer in walking, to bump shoulders. I am extremely optimistic and excited for the future.
+
+Thoughts I had on the way home:
+
+His heart is so genuine and strong. The amount of care he puts to Chica, the level of emotional intelligence he carries, the directness of his thoughts and feelings and opinions. I feel like he is the full package.
+
+Part of what to look for in a partner, is someone that can inspire you to become a better person. Jiawei is very inspiring, not only with his past, but with his present and future aspirations and outlooks on life. Having passion and a firm identity is important. And so is the ability to grow. I've had to be independent for my whole life... and he is someone that would respect that, but also would be strong enough for me to depend on. I want to grow with him.
