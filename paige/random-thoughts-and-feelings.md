@@ -1,1 +1,5 @@
-Saturday night I had my first dream with Jiawei, and in it, he just crawled in my bed and snuggled me all night. It was perfect
+Saturday night I had my first dream with Jiawei, and in it, he just crawled in my bed and snuggled me all night. It was perfect.
+
+Had a really hard time falling asleep last night, my brain would be quiet. I think it was mainly just excited for Jiawei to visit my house. Even though it is an old house, and I have alot of stuff, it's because I've put a ton of effort in to trying to make it a home. I've put alot of care and thought into the things I have and what I've done to the house; and I hope that he sees that.
+
+About Jiawei's kissing note, I couldn't tell - everything seemed natural and easy. If it really was his first time, then he aced it like he does everything else. It's mainly about the feeling of of being connected. The intensity of it shifts with the levels of feeling that's occurring. Slower and more drawn out for heightened levels of emotion, and faster/more intense for heightened levels of feeling passion. Slower to start is good because then your movements are more deliberate, and you can get a good feel for how we feel, together.
