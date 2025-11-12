@@ -6,4 +6,12 @@ About Jiawei's kissing note, I couldn't tell - everything seemed natural and eas
 
 I'm at the vet with bella rn and I think Jiawei would like this place. They're real friendly and right down the road. 
 
-I am excited to eventually see what Jiawei's daily work is like, and for him to see what mine is like. It'll be nice to be able to remote sometimes together in the future. Bella and Chica will fight for attention competition
+I am excited to eventually see what Jiawei's daily work is like, and for him to see what mine is like. It'll be nice to be able to remote sometimes together in the future. Bella and Chica will fight for attention competition.
+
+I know it's been such a short time, but I've never felt this comfortable and at ease with someone before, so quickly. 
+
+I don't have to second guess where I stand with Jiawei and his feelings towards me. The fact that we seem to be on the exact same page from a relationship perspective, and our seriousness about it, it wild to me -- but incredible. That we can joke about the future, but in it is a thread of seriousness, feels magical and fun and exciting. I'm really looking forward to our future together. I can see it. 
+
+I feel like I have won the lottery. 
+
+I'm excited that my mom seems to be so supportive and extended the thanksgiving invite without a second of hesitation, the day after the first date. And I'm even more excited now that Jiawei and I are official and that he wanted to come! I know that's intimidating, but it should be lowkey and fun. Despite the conspiracy theories they get wrapped up in, they are pretty down to earth people and care most about a person's character.  
