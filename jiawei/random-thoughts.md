@@ -21,3 +21,5 @@ Paige can juggle so many balls at the same time and do everything so well, I can
 I am really glad I can share my thoughts with her without any masking, and it's great that she resonates with me and appreciates the things I share. Communication is easy when both work towards the common goal.
 
 Trying to find the best translation for "Paige" in Chinese, something that sounds feminine and elegant/cute. It's hard.... 
+
+Just added Paige as my emergency contact, so she better not break up with me, like forever. 
