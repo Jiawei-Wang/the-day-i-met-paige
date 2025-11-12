@@ -20,18 +20,4 @@ Paige can juggle so many balls at the same time and do everything so well, I can
 
 I am really glad I can share my thoughts with her without any masking, and it's great that she resonates with me and appreciates the things I share. Communication is easy when both work towards the common goal.
 
-I want to set up some breakthrough points, although I don't have any timeline for them, I want to move towards achieving them slowly:
-
-Short term: 
-1. share each other's hobbies, lifestyle and social groups
-2. appreciate the differences, understand the gaps, and identify gaps we want to close
-
-Mid term: 
-1. learn to solve conflicts and be patient
-2. overcome the difficulities, support each other in their lows
-
-Long term:
-1. start to live together and share financial responsibilities 
-2. work towards building the dream life (find permanent resident state/city, long term employment with better wlb, purchase home, grow social network, get involved in the community, get married, have kids)
-
 Trying to find the best translation for "Paige" in Chinese, something that sounds feminine and elegant/cute. It's hard.... 
