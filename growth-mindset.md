@@ -10,6 +10,7 @@ P:
 - no eggs or dairy
 - no wheat or gluten (from wheat)
 - Vegetables are fine
+
 2.) P: I want to learn more about Jiawei's culture, to understand him and his family better. 
 
 
