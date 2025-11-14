@@ -15,3 +15,6 @@ I don't have to second guess where I stand with Jiawei and his feelings towards 
 I feel like I have won the lottery. 
 
 I'm excited that my mom seems to be so supportive and extended the thanksgiving invite without a second of hesitation, the day after the first date. And I'm even more excited now that Jiawei and I are official and that he wanted to come! I know that's intimidating, but it should be lowkey and fun. Despite the conspiracy theories they get wrapped up in, they are pretty down to earth people and care most about a person's character.  
+
+I love Jiawei 
+
