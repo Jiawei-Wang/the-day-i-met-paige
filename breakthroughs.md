@@ -1,4 +1,5 @@
 P: You've already done such a good job laying these out
+
 J: I want to set up some breakthrough points, although I don't have any timeline for them, I want to move towards achieving them slowly:
 
 Short term: 
@@ -14,3 +15,4 @@ Long term:
 1. start to live together and share financial responsibilities 
 2. work towards building the dream life (find permanent resident state/city, long term employment with better wlb, purchase home, grow social network, get involved in the community, get married, have kids)
 3. P: Continue working on learning Japanese (or start on Chinese) to be able to better communicate with Jiawei's family
+4. J: I am full Chinese, I will teach you both but please use Chinese when talking to my family haha. 
