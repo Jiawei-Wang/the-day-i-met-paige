@@ -18,3 +18,4 @@ I'm excited that my mom seems to be so supportive and extended the thanksgiving 
 
 I love Jiawei 
 
+I look forward to talking to him every day, Jiawei constantly makes me smile and think of him
