@@ -8,3 +8,4 @@ I felt so much love
 
 Im so glad Jiawei was up to coming to Robs bday dinner and party. My social battery also drains in large gatherings, but it drains twice as slow with Jiawei there. He's becoming my peace. He keeps my thoughts on good paths. Even though it was a crazy game, Im so glad that Jiawei joined in on playing, and he played it really well.
 
+Jiawei was so sweet, insisting on driving both ways to my mom's. Having the time to just talk both ways - tbc
