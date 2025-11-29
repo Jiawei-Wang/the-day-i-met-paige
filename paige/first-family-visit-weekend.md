@@ -4,4 +4,7 @@ Going shopping together - I like how we were both quick and efficient and got ex
 
 Meeting his best friends was great and fun. They are very down to earth, real people, and I feel like I get along with them easily and i can't wait to get to know them more. 
 
-tbc
+I felt so much love
+
+Im so glad Jiawei was up to coming to Robs bday dinner and party. My social battery also drains in large gatherings, but it drains twice as slow with Jiawei there. He's becoming my peace. He keeps my thoughts on good paths. Even though it was a crazy game, Im so glad that Jiawei joined in on playing, and he played it really well.
+
